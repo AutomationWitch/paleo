@@ -1,7 +1,7 @@
 # Tanuki balls (energy balls)
 
 ## Ingredients
-- 500g Dates
+- 500g Deglet Noor Dates
 - 150g Hazelnut Butter (or any nut butter)
 - 5 tbsp Raw Cocoa powder
 
