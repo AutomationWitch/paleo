@@ -2,6 +2,7 @@
 
 ## Ingredients
 - 1L Milk of your choice (vegetal, raw...)
+- 5 Medjool Dates
 - 1 tbsp Hazelnut butter
 - 2 tbsp Raw Cocoa powder
 - *optional: 2-3 tsp Maca powder*
